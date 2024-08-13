@@ -12,4 +12,4 @@ meu nome é Fabiana Rodrigues
 
  fabianamts_
 
-![](https://tenor.com/pt-BR/view/playboi-carti-ai-dance-2024-music-gif-10363351855146879786)
+![](https://media1.tenor.com/m/j9IFmthqSyoAAAAd/playboi-carti-ai-dance.gif)
